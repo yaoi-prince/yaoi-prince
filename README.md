@@ -1,18 +1,19 @@
-[ REMAKE SOON ]
+[ so lazy to be decorative smh ]
 
-![IMG_5887](https://github.com/user-attachments/assets/f7782e2a-104a-414d-ba2d-557232401f43)
 
+
+![IMG_5890](https://github.com/user-attachments/assets/4b675bf7-d549-4c52-9255-46347f73d466)
 
 
 ✦
 
-𓏲⋆ ִֶָ ๋𓂃 ⋆ - names u can call me : lennox, kaizen, ren, vein, rinne, skate, soda, viktor, karl and more. I LOEV NICKANMEMSMS!!
+𓏲⋆ ִֶָ ๋𓂃⋆ - names u can call me : lennox, kaizen, ren, vein, rinne, skate, soda, viktor, karl and more. I LOEV NICKANMEMSMS!!
 
-⋆｡° ✮ , - my pronouns are he / him, tho its okay if u call me a they / them.
+⋆｡°✮ , - my pronouns are he / him, tho its okay if u call me a they / them.
 
-. ݁₊ ⊹ . ݁˖ - I'm 4teen, iwc if 18+. 
+. ݁₊⊹ . ݁˖ - I'm 4teen, iwc if 18+. 
 
-➢ ﹔୭ ˚. - i'm in many fandoms (animes, games, shows, etc.. i dontnread bookss.s.)
+➢ ﹔୭. - i'm in many fandoms (animes, games, shows, etc.. i dontnread bookss.s.)
 
 
 ----
