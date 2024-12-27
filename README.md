@@ -1,22 +1,9 @@
-retheming soon.
+[This is recolored by me, making rentries again soon trust..]
+
+![Untitled7_20241227184843](https://github.com/user-attachments/assets/5b921983-c920-440b-a9a5-2ee6a922818d)
 
 
 
-![IMG_5890](https://github.com/user-attachments/assets/4b675bf7-d549-4c52-9255-46347f73d466)
-
-
-✦
-
-𓏲⋆ ִֶָ ๋𓂃⋆ - names u can call me : ren, kaizen, rinne, vein, skate, soda, viktor, karl and more. lol pls dont call me len unless close??. i like nicknames ^_^
-
-⋆｡°✮ , - my pronouns are he / him, tho its okay if u call me a they / them.
-
-. ݁₊⊹ . ݁˖ - I'm 4teen, iwc if 18+. 
-
-➢ ﹔୭. - i'm in many fandoms (animes, games, shows, etc.. i dontnread bookss.s.)
-
-
-----
 
 
 
