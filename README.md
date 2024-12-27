@@ -7,7 +7,7 @@ retheming soon.
 
 ✦
 
-𓏲⋆ ִֶָ ๋𓂃⋆ - names u can call me : lennox, kaizen, ren, vein, rinne, skate, soda, viktor, karl and more. I LOEV NICKANMEMSMS!!
+𓏲⋆ ִֶָ ๋𓂃⋆ - names u can call me : ren, kaizen, rinne, vein, skate, soda, viktor, karl and more. lol pls dont call me len unless close??. i like nicknames ^_^
 
 ⋆｡°✮ , - my pronouns are he / him, tho its okay if u call me a they / them.
 
