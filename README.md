@@ -1,4 +1,4 @@
-![Untitled4_20241227190550](https://github.com/user-attachments/assets/c79987b8-8a26-4ec9-b80c-c900807abd82)
+
 
 [This is recolored by me, making rentries again soon trust..]
 
