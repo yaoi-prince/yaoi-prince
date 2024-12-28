@@ -46,3 +46,9 @@
 ||
 
 [rentry<3 (thank you leon 4 this!!<3 itts old.. tho!](https://rentry.co/kai-angel)
+
+---
+
+
+![Untitled8_20241228062835](https://github.com/user-attachments/assets/6e0e51b5-9769-4f06-9b9c-d370149d3d6b)
+
