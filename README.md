@@ -6,7 +6,7 @@
 
 ➢ ﹔୭ ˚. ; I go by ren and more names, although nicknames are fine by me i love them!! . ,, please dont call me lennox/len unless close.
 
-➢ ﹔୭ ˚. ; I'm 4teen, and a gemini born in june. i'm friendly with any age, just please dont be weird.
+➢ ﹔୭ ˚. ; I'm 4teen, transmasc and a gemini born in june. i'm friendly with any age, just please dont be weird. .
 
 ➢ ﹔୭ ˚. ; please dont correct my grammar or spells i genuinely dont care go away ://... and my humor is intermet humor dni haters wthh!!
 
