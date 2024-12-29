@@ -12,7 +12,7 @@
 
 ➢ ﹔୭ ˚. ; i'm in many fandoms, idm ships unless problematic !
 
-➢ ﹔୭ ˚. ; my favourite characters / people / wtv i love them im so them wow : planetlord (lifesteal), leowook (lifesteal), anaxa (hsr -I dont like nor support the fandom and play it.), X (R1999), Oliver fog (r1999), Sabo (one piece), nikolai (bsd), and there are more im lazy to list >_<
+
 
 
 
